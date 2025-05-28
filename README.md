@@ -1,7 +1,6 @@
 # Quantum Spirals and Multi-Reality Space-Time: The Emergence of Infinity in the Expanding Void
 
 **Author:** Rishika Rai  
-**Date:** \today
 
 ---
 
